@@ -1,7 +1,7 @@
 # Arun Prasanth M
 Bengaluru, India  
 Email: arunmrav1034@gmail.com  
-Phone: +91 XXXXXXXX  
+Phone: +91 9842405072  
 LinkedIn: https://www.linkedin.com/in/arun-prasanth-m-306940a0/
 
 ---
